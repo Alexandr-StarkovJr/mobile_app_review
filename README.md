@@ -28,8 +28,8 @@
 Если вы хотите предложить требования для анализа, пожалуйста, свяжитесь со мной.
 
 ## Контакты
-telegram - https://t.me/AlexStarkJr
-почта - alexanderstarkov55@gmail.com 
+Telegram - https://t.me/AlexStarkJr.  
+Почта - alexanderstarkov55@gmail.com.  
 
 ## Другие проекты
 сслыка на Google Docks с другими проектами
