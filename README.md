@@ -32,5 +32,5 @@ Telegram - https://t.me/AlexStarkJr.
 Почта - alexanderstarkov55@gmail.com.  
 
 ## Другие проекты
-сслыка на Google Docks с другими проектами
+Cслыка на Google Docks с другими проектами
 https://drive.google.com/drive/folders/1Tcj648y9MdwFNRL-OTrIGNK_voaMA1WK?usp=drive_link
